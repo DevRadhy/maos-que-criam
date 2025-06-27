@@ -6,6 +6,8 @@ link de demostração: Em breve
 
 ![Image](https://github.com/user-attachments/assets/2d0ec0eb-bc25-4a3b-895a-c38094299c28)
 
+![Image](https://github.com/user-attachments/assets/a39e54b2-1396-4182-9e3f-ada0eb0b1824)
+
 ![Image](https://github.com/user-attachments/assets/50cc4a95-bce7-44d8-bf97-039332e323d7)
 
 O projeto "Mãos que Criam" é uma iniciativa dedicada a dar visibilidade e valorizar o trabalho dos artesãos do nosso município, criando um catálogo digital que apresenta os talentos locais em uma plataforma acessível e atraente.
